@@ -1,1 +1,1 @@
-# zaliczenie
+# Joanna Ryczek
